@@ -1,0 +1,1 @@
+# diziyi_alt_kumeye_bolebilme
